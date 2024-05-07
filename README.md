@@ -2,3 +2,4 @@
 - 👀 I’m interested in software development, artificial intelligence, and exploring new technologies.
 - 📫 How to reach me : you can't
 - ⚡ Fun fact: I love to experiment with different programming languages and frameworks in my free time, and I'm also an avid gamer!
+- 🔒 37 61 4A 78 43 78 63 6D 64 74 51 59 73 69 36 
